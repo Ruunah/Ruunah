@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ruunah
+- 👀 I’m interested in                Programming and Games
+- 🌱 I’m currently learning           Python and c++
+- 💞️ I’m looking to collaborate on    Nothing yet
+- 📫 How to reach me                  Please don't, at least not yet
+- 😄 Pronouns:                        She/Them
+- ⚡ Fun fact:                        Idk i dont have anything fun to say yet
