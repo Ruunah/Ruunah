@@ -4,4 +4,3 @@
 - 💞️ I’m looking to collaborate on    Nothing yet
 - 📫 How to reach me                  Please don't, at least not yet
 - 😄 Pronouns:                        She/Them
-- ⚡ Fun fact:                        Idk i dont have anything fun to say yet
